@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning school stuff
 - 💞️ I’m looking to collaborate on things
 - 📫 How to reach me is by not stalking people and no
-- 😄 Pronouns: why you asking
+- 😄 Pronouns: my friends might see this.. so helllooooo
 - ⚡ Fun fact: I don't live on Mars
 
 <!---
